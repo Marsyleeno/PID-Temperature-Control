@@ -15,3 +15,5 @@ Dev Team
 
 final paper: https://drive.google.com/file/d/1LDyB3kXgkAJw2KXFwQX4Rc6Lt8_4kxGw/view?usp=sharing
 
+PRESENTATION: https://canva.link/5xvtlxsb0c3lxa9
+
